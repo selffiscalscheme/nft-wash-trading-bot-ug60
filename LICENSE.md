@@ -1,4 +1,4 @@
-# 
+# elite nft wash trading bot | take-profit + NFT-sniping offers the most advanced nft wash trading bot, with take-profit and NFT-sniping. Ideal for professional NFT traders and
 
 
 
